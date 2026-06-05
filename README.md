@@ -4,7 +4,7 @@
   ![](https://files.catbox.moe/o0e0kt.png)
   <p align="center"
 
-[![](https://files.catbox.moe/19knhp.png)](https://rentry.co/kawaiilander)
+[![](https://files.catbox.moe/xyx75y.png)](https://rentry.co/kawaiilander)
 <p align="center"
   
   ![](https://files.catbox.moe/ewhlls.png)
