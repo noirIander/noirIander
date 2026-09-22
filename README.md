@@ -4,7 +4,7 @@
   ![](https://files.catbox.moe/o0e0kt.png)
   <p align="center"
 
-[![](https://files.catbox.moe/xyx75y.png)](https://rentry.co/variabIe)
+[![](https://files.catbox.moe/xyx75y.png)](https://repris.org/8ball)
 <p align="center"
   
   ![](https://files.catbox.moe/ewhlls.png)
